@@ -1,0 +1,2 @@
+# Nameless-Space-Game
+STUPOID BALANCING AND BUGS 
